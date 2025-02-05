@@ -34,3 +34,6 @@ The metaverse is important because it has the potential to revolutionize how peo
 
 - [Ray-Ban Meta](https://www.meta.com/ai-glasses/shop-all/?utm_source=gg&utm_medium=ps&utm_campaign=20687046217&utm_term=meta%20rayban&utm_content=724053121901&utm_funnel=dcap&&gclsrc=aw.ds&gad_source=1&gbraid=0AAAAAo_xvTnHuxRbEYqkj5lj7Ysl4oJAL&gclid=Cj0KCQiAkoe9BhDYARIsAH85cDO15LhAlm-O2jyWQ3Q9ybuAx4lNqtv4Xe8ye_09nM8mNyW4NpGNm0UaAjshEALw_wcB)
   ![Ray-Ban Meta Image](src/0RW4006__601_SB__P21__shad__fr.png.avif)
+
+-Emily Yang
+The metaverse’s blend of VR, AR, and blockchain technologies could be groundbreaking and completely change how social interactions and entertainments work. It is indeed very transforming.
