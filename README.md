@@ -1,3 +1,6 @@
+## Jason Tran
+Hi Shiwen, I thought this article about the Metaverse was extremely fascinating. I was very intrigued by the concept of the metaverse and how it could potentially revolutionize our ways of interacting with other people and things in the world from work, to entertainment to even potential businesses. Thank you so much for sharing!
+
 # [**The Verge - What is the metaverse, and do I have to care?**](https://www.theverge.com/22701104/metaverse-explained-fortnite-roblox-facebook-horizon)
 
 ## What is Metaverse?
