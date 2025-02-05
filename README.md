@@ -37,3 +37,6 @@ The metaverse is important because it has the potential to revolutionize how peo
 
 ### Emily Yang
 The metaverse’s blend of VR, AR, and blockchain technologies could be groundbreaking and completely change how social interactions and entertainments work. It is indeed very transforming.
+
+### Madison Phung
+It's going to be so interesting to see how the metaverse is going to change the way we interact with other people in the digital world. I'm curious to see how it's going to impact other industries such as entertainment, finance, energy, and more.
